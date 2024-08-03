@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @yerlo32
-- 👀 I’m interested in TREASURE
+- 🐯 I’m interested in KIA Tigers(one of KBO teams)
 - 🌱 I’m currently learning Japanese
-- 💞️ I’m looking to collaborate on YG ent.
 - 📫 How to reach me insta:@yeeumin
